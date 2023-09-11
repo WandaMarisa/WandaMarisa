@@ -1,10 +1,13 @@
-# Hallo !!!, Ich bin Wanda Marisa 
-<p> Geophysics student at Gadjah Mada University
+# Hallo !!!
+# Ich bin Wanda Marisa Bekti🖐
 <p> wandamarisabekti2303@mail.ugm.ac.id
-<p> ig: marisawanda_
-
-# XXXXXXXXXXXXXXXXXXXXXXXXXXXXXXX
-<p> Noob
-<p> Homo sapiens sok sibuk :dotted_line_face:
-<p> menjadi kutu yang tertidur dalam bulu-bulu kelinci 
-<p> "Nanos Gigantum Humeris Insidentes" :seedling:
+<p> https://www.linkedin.com/in/wanda-marisa-bekti-
+708714257
+# ----
+🌻🌻Welcome to my profile🌻🌻
+<p> beginner in programming
+<p> interest in all things related to energy⚡
+<p> Homo sapiens who try to be busy and pretend to be busy:v 🦉
+<p> ----------------------------------------------------------
+<p> 
+<p> "Nanos Gigantum Humeris Insidentes"
